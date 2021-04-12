@@ -8,4 +8,3 @@ Hong Kong is a busy place with congested roads, populated air, neon lights and h
 OutBack Campers Staycation is the solution. Get away from the city and into the stress-free life. 
 We are here to help you connect and build stronger relationships between friends and family. Switch off your electronics , cook your food over a live fire and relax under the stars.
 
-Built using 
